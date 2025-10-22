@@ -1,4 +1,4 @@
-# Propuesta de Negocio Maderoh
+# Propuesta de Trabajo
 
 **Fecha:** 2025-10-21  
 **Preparado por:** Gerry
